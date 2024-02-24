@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @RubaSaeed12
+- 🌱 I’m currently learning AI
